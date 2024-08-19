@@ -5,7 +5,7 @@
 To request the deletion of your personal data, please follow these steps:
 
 1. **Send a Request**: 
-   - Email us at [your-email@example.com] with the subject line "Request for Data Deletion."
+   - Email us at [nguyenquanghuy12a99@gmail.com] with the subject line "Request for Data Deletion."
 
 2. **Provide Information**: 
    - In your email, include your account details and specify the data you wish to delete.
