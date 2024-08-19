@@ -13,4 +13,4 @@ To request the deletion of your personal data, please follow these steps:
 3. **Confirmation**:
    - You will receive a confirmation email once your request has been processed.
 
-If you have any questions or concerns about the data deletion process, please contact us at [your-email@example.com].
+If you have any questions or concerns about the data deletion process, please contact us at [nguyenquanghuy12a99@gmail.com].
